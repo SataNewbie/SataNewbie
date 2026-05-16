@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![](https://i.postimg.cc/VkyGGtBn/Tumblr-l-1525614667604169.gif)
 
 <!--
 **SataNewbie/SataNewbie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

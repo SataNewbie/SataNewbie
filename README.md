@@ -1,6 +1,6 @@
   ## ![](https://i.postimg.cc/VkyGGtBn/Tumblr-l-1525614667604169.gif)
   Newbie / Nines / 99
-  Newbie Fictionkin & Non-Theistic Satanist (i love Satan! but i don't worship him myself lol)
+  Newbie Fictionkin & Theistic Satanist (Satan is real and he loves me AND Newbie!!!)
 my/cn 17 i don't really check alot of my stuff here
 <!--
 **SataNewbie/SataNewbie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
